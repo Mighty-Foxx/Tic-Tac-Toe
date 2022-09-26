@@ -1,0 +1,3 @@
+# FIRST EVER PROJECT HAI EZ SCENE
+
+les goo
